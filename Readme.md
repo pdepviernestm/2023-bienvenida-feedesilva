@@ -2,7 +2,7 @@
 
 #### Legajo 208.829-0
 
-![foto](C:\Users\fnahu\OneDrive\Desktop\perfil.jpg)
+![foto](brc-mate.jpg)
 
 - Es mi segundo año en la carrera
 - Antes de hacer ingeniería había empezado a estudiar medicina
